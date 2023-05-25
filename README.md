@@ -1,2 +1,2 @@
 # logo
-this playlist is for personal use
+this logo is for personal use
